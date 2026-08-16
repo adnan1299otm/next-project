@@ -1,2 +1,2 @@
 # issue solved
-coming soon wait
+coming soon wait!
